@@ -1,6 +1,6 @@
 <p align="center">
   <a href="https://www.highcleanvn.com">
-    <img src="./banner.jpeg" alt="HighCleanVN — Vệ sinh nệm & sofa tận nhà" width="100%">
+    <img src="./banner.png" alt="HighCleanVN — Vệ sinh nệm & sofa tận nhà" width="100%">
   </a>
 </p>
 
