@@ -31,7 +31,7 @@ Bảng giá theo kích thước và chất liệu: [highcleanvn.com/dich-vu](htt
 ## Cam kết
 
 - Hoá chất an toàn cho trẻ nhỏ và thú cưng
-- Khô nhanh trong 2–4 giờ
+- Khô nhanh trong 2h
 - Làm sạch ngay tại nhà
 - Báo giá rõ ràng trước khi làm
 - Phản hồi nhanh, hỗ trợ tất cả các ngày trong tuần
@@ -72,7 +72,7 @@ safe for children and pets.
 - **Mattress cleaning**: removes dirt, bacteria and odors; clean and dry within hours.
 - **Sofa deep cleaning**: lifts stubborn stains and restores colors; your sofa looks new again.
 
-Safe products · Dry in 2–4 hours · Done at your home · Clear quotes · Quick replies, every day of the week
+Safe products · Dry in 2 hours · Done at your home · Clear quotes · Quick replies, every day of the week
 
 Hotline / Zalo / WhatsApp: [+84 708 765 675](tel:+84708765675) · [contact@highcleanvn.com](mailto:contact@highcleanvn.com) ·
 05:00 – 22:00 daily
